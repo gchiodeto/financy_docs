@@ -1,1 +1,0 @@
-# financy_docs
